@@ -1,5 +1,5 @@
-Algorithmic trading in the globalized financial markets, 
+Characteristics of the model MGP, 
 Marin Stoyanov, 
-Vanguard Scientific Instruments in Management 2013 (VSIM: 2013), 
-p.180, 
+Vanguard Scientific Instruments in Management 2014 (VSIM: 2014), 
+p.148, 
 ISSN 1314-0582
