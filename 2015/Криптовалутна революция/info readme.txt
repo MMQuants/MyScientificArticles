@@ -1,5 +1,5 @@
-Characteristics of the model MGP, 
+Cryptocurrency revolution, 
 Marin Stoyanov, 
-Vanguard Scientific Instruments in Management 2014 (VSIM: 2014), 
-p.148, 
+Vanguard Scientific Instruments in Management 2015 (VSIM: 2015), 
+p.133, 
 ISSN 1314-0582
